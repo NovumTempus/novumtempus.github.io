@@ -7,7 +7,7 @@ Anyhow, I am here, maybe, I live? I just do stuff, let's see how well I can mana
 Here are some weird things that are completely useless to know:
 
 - I do not know what I am doing
-- Voica :D
+- Voice :(
 - Minecraft?
 - Music!
 - I love music.
